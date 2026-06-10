@@ -183,7 +183,7 @@ Yes, if your balance is more than 10k and you want to transfer all of them, you 
 
 💰 Pay with Bitcoin, USDT, BSC, BUSD,  ... 👉🏻 @anujedits76
 
-💳️ Pay with Paypal, Paytm, WebMoney, Perfect Money, Payeer ... 👉🏻 @anujeKsCoder
+💳️ Pay with Paypal, Paytm, WebMoney, Perfect Money, Payeer ... 👉🏻 @anujedits76
 <b><u>🎁 Bonus:</u></b>
 Cryptocurrency: 10%
 Payeer and Perfect Money: 5%
